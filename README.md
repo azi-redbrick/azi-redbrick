@@ -1,4 +1,4 @@
-### 👋 Murzaminidov Aziyat
+###  Murzamidinov Aziyat(Azi Muth)
 > A developer passionate about building impactful systems, solving complex problems, and growing together with a strong tech community.
 
 ---
